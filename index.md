@@ -1,5 +1,3 @@
-#Brian Lee
-
 ![Brian Lee](bthomaslee.github.io/BrianLee.JPG)
 
 Brian Lee is a Ph.D. candidate in the department of religion at Princeton University. His research focuses on Christian theology and political ethics. Brian’s dissertation is on American abolitionism, and it is entitled “Practical Abolition: Vigilance, Protection, and Friendship.”
